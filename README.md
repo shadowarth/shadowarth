@@ -11,7 +11,7 @@
 - ⚡ Fun fact **i learn most of my skills through self study**
 
 <h3 align="left">Connect with me:</h3>
-<p align="left">
+<p align="left">shadowarthpro1@gmail.com
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
